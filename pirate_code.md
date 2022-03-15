@@ -41,7 +41,7 @@ get your fair share of the prize!
 
 Captain      : Burulca
 Quartermaster: Maja
-First mate   : Christian
+First mate   : Christian/Vanessa
 
 
 
